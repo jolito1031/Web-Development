@@ -1,1 +1,1 @@
-Just read me ok! Do what is good.
+Just read me! Okay? Do what is Good.
